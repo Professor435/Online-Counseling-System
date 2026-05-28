@@ -18,4 +18,4 @@ Would love your thoughts! How can we make mental healthcare even more accessible
 
 #MentalHealthTech #Telehealth #DigitalHealth #HealthTech #WebRTC #UXDesign #MentalHealthAwareness #HealthInnovation #SaaS #ProductDesign #UserExperience #HealthcareIT #WellnessTech #TechForGood #LinkedInForCreators #BuildInPublic #FrontendDevelopment #ReactJS #ModernWeb #Glassmorphism #UIUXDesign #StartupLife #MentalHealthMatters #AccessibleHealthcare #FutureOfWork
 
-contact for full version according to your needs and requirements(professorshami435)
+contact for further changes or other language projects or FYP's (professorshami435@gmail.com)
